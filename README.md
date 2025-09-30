@@ -3,4 +3,4 @@
 
 ## Onde jogar
 
-[Void Paths](https://seconds66.itch.io/void-paths)
+[Void Paths](https://mysterytour.itch.io/void-paths)
